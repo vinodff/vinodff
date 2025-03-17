@@ -11,7 +11,7 @@
 
 💞️ I’m looking to collaborate on Open Source Projects and Innovative Tech Solutions
 
-📫 How to reach me: [Your Email] | [Your LinkedIn]
+📫 How to reach me: [vinodkondeti081@gmail.com] | [Your LinkedIn]
 
 😄 Pronouns: He/Him
 
